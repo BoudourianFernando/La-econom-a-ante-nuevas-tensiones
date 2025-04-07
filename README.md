@@ -1,1 +1,1 @@
-# La-econom-a-ante-nuevas-tensiones
+# La-economía-ante-nuevas-tensiones
